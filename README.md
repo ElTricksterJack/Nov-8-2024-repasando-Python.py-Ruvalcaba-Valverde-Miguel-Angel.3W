@@ -24,10 +24,15 @@
 ![image](https://github.com/user-attachments/assets/c7d8c004-7b19-43f6-9361-7dbb69ee419a)
 
 # punto 6
+![image](https://github.com/user-attachments/assets/3cde315f-0631-4be3-8a72-998e7022ff78)
 
 # punto 7
+![image](https://github.com/user-attachments/assets/4c42118d-31ff-4957-b6a1-9911bcf768dc)
+![image](https://github.com/user-attachments/assets/2bb223c9-8330-4018-ba4f-ca28270eb49c)
 
 # punto 8
+![image](https://github.com/user-attachments/assets/d9697e13-af01-4c88-aade-ca247ce4d090)
+![image](https://github.com/user-attachments/assets/7b159672-d7bd-46d2-9b7d-049d947bdb3a)
 
 # punto 9
 
