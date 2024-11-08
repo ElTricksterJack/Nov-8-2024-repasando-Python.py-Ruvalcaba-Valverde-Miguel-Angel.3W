@@ -35,8 +35,12 @@
 ![image](https://github.com/user-attachments/assets/7b159672-d7bd-46d2-9b7d-049d947bdb3a)
 
 # punto 9
+![image](https://github.com/user-attachments/assets/8cd47120-4fc2-4ed3-b595-01a48cb45fdd)
+![image](https://github.com/user-attachments/assets/ee5e65ce-8482-47c1-b037-454ab68f585f)
 
 # punto 10
+![image](https://github.com/user-attachments/assets/5e66a1ea-59b7-4061-b41f-3fd1500c5335)
+![image](https://github.com/user-attachments/assets/56fa9eb5-a2c6-461e-9dfc-c7ba75c35960)
 
 # punto 11
 
